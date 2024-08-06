@@ -1,3 +1,0 @@
-# Gacha
-# Gacha
-# Gacha
