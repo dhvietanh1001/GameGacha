@@ -1,1 +1,1 @@
-# GameGacha
+# Gacha
